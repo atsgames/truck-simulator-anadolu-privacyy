@@ -1,0 +1,1 @@
+# truck-simulator-anadolu-privacyy
